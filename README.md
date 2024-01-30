@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Duna65
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning Java, Dance, Snowboarding, and Piano
+- 📫 How to reach me: dalliny65@gmail.com
+- ⚡ Fun fact: I love playing minecraft
